@@ -1,2 +1,0 @@
-# SQLHomework_JordanLucas
- 
